@@ -6,4 +6,4 @@
 - 💞️ I’m looking to collaborate on: nothing. Go away.
 - ⚡ Fun fact: Inventor of the first and last silent mammoth whistle.
 
-  ![Far Side - Mammoth Whistle](https://github.com/user-attachments/assets/3ea9d68a-94eb-4e6b-9e4d-0741a88cf8fe)
+  ![Far Side - Mammoth Whistle](https://github.com/user-attachments/assets/0cf894cf-d569-43b6-ba94-dc4ea4b84f62)
